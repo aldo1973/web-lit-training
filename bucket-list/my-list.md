@@ -6,18 +6,18 @@
  * Throw a surprise party for a loved one
 
 ## Travel and Adventure
- * Visit Antarctica
- * Go skydiving
- * Dive the Great Barrier Reef
+ * Visit Canada
+ * Go diving
+ * Go deep sea fishing
  
 ## Career
  * ~~Learn coding skills~~
- * Get a job in technology
+ * Get a job 
 
 ## Service and volunteering
- * Join a nonprofit board
- * Volunteer at a children's hospital
+ * Join a nonprofit organzation 
+ * Volunteer at the VA
  
 ## Creativity
-* Write a song
-* Take an art class
+* Build furnature out of palletes 
+* Take some college classes
